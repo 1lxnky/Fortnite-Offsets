@@ -7,4 +7,4 @@ DM me in discord to get more information - my username: l1nky1337
 latest fortnite offsets
 
 # Discord
-You can find already updated Fortnite Cheat Sources in my [Discord Server](https://discord.gg/YzpCypQyNw)
+You can find already updated Fortnite Cheat Sources in my [Discord Server](https://discord.gg/aJShJrT5Dp)
